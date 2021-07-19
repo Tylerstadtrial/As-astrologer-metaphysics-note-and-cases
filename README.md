@@ -13,7 +13,7 @@ Some astrologer said it provide a person extremely creatively mind at specific m
 Apex in sun:<br>
 象徵生命的力量與性格.<br>
 
-T-square with apex jupiter.<br>
+T-square with apex jupiter. T三角點頂木星<br>
 提供盤主壓力, 需要不斷的破解.<br>
 有尋找生命的意義的需要. 頂點的對角是壓力釋放點.<br>
 
