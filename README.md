@@ -1,5 +1,8 @@
 # astrologer-note
 
+格局 The Patterns
+====
+
 Cradle 搖籃格局. <br>
 像監獄, 舒適以致無法走出牢籠. 需要更多決心與自我訓練. 否則容易困死在相位裡.<br>
 能量類似六芒星 Grand sextile.<br>
@@ -22,3 +25,8 @@ T-square with apex in jupiter. T三角點頂木星<br>
 
 Grand trine. 大三角. <br>
 水象: 看上去相對周圍有想像力, 但未必會付諸行動.<br>
+
+
+
+天使數字:
+====
