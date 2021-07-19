@@ -1,5 +1,14 @@
 # astrologer-note
 
+相位 Aspects
+====
+Sun trine jupiter. 日木120度<br>
+給盤主帶來對生命的信心.
+
+流年 Transit
+====
+2021年初, 六星連珠水瓶座. <br>
+
 格局 The Patterns
 ====
 
