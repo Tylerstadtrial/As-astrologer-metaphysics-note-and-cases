@@ -16,6 +16,9 @@ Apex in sun:<br>
 T-square with apex jupiter. T三角點頂木星<br>
 提供盤主壓力, 需要不斷的破解.<br>
 有尋找生命的意義的需要. 頂點的對角是壓力釋放點.<br>
+基本星座T三角: 擁有向前邁進的強大壓力.<br>
+固定星座T三角: <br>
+變動星座T三角: <br>
 
 Grand trine. 大三角. <br>
 水象: 看上去相對周圍有想像力, 但未必會付諸行動.<br>
