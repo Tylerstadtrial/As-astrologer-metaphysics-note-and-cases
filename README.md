@@ -36,8 +36,9 @@ T-square with apex in jupiter. T三角點頂木星<br>
 
 Grand trine. 大三角. <br>
 水象: 看上去有想像力, 但未必會付諸行動.<br>
-
-
+火象: 旺盛的行動力.<br>
+土象: 穩定. <br>
+風象: 理性智慧, 學習力.<br>
 
 天使數字:
 ====
