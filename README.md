@@ -24,7 +24,7 @@ T-square with apex in jupiter. T三角點頂木星<br>
 變動星座T三角: <br>
 
 Grand trine. 大三角. <br>
-水象: 看上去相對周圍有想像力, 但未必會付諸行動.<br>
+水象: 看上去有想像力, 但未必會付諸行動.<br>
 
 
 
