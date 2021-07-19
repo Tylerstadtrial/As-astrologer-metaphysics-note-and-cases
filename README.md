@@ -2,6 +2,7 @@
 
 Cradle 搖籃格局. <br>
 像監獄, 舒適以致無法走出牢籠. 需要更多決心與自我訓練. 否則容易困死在相位裡.<br>
+能量類似六芒星 Grand sextile.<br>
 
 Golden Yod 黃金上帝之指.<br>
 與Yod相同, 只是更為溫和平順的相位. 稱"Finger of fate", 被命運選定之人. 在生活中經常感覺到有需要完成的額外的任務, 俗稱使命(The mission)<br>
