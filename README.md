@@ -24,6 +24,8 @@ Golden Yod 黃金上帝之指.<br>
 Some astrologer said it provide a person extremely creatively mind at specific moment.<br>
 Apex in sun:<br>
 象徵生命的力量與性格.<br>
+Sun in virgo. 日座在處女座<br>
+處理外在事物與人體衛生.<br>
 
 T-square with apex in jupiter. T三角點頂木星<br>
 提供盤主壓力, 需要不斷的破解.<br>
