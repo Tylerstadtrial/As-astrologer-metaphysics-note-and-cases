@@ -5,7 +5,7 @@
 Sun trine jupiter. 日木120度<br>
 給盤主帶來對生命的信心.
 
-流年 Transit
+流年事件 Transit
 ====
 2021年初, 六星連珠水瓶座. <br>
 
