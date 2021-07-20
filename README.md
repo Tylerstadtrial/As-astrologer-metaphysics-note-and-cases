@@ -28,6 +28,7 @@ Golden Yod 黃金上帝之指.<br>
 Some astrologer said it provide a person extremely creatively mind at specific moment.<br>
 Apex in sun:<br>
 象徵生命的力量與性格.<br>
+頂點對面是激活點, 行運走過將可能觸發行動.<br>
 Yod 也象徵永遠無法完成的工作, 例如科學探索, 社會工作, 或教育工作.<br>
 Sun in virgo. 日座在處女座<br>
 壓力釋放方法, 處理外在事物與人體健康, 區域衛生.<br>
