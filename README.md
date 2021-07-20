@@ -2,11 +2,15 @@
 Self natal chart read and little reseaches.<br>
 ![Self-natal-chart_github_preview](https://user-images.githubusercontent.com/31240078/126334548-bff41a64-dedd-42e6-a323-c92986446e88.jpg)
 
+重置盤.<br>
 
 相位 Aspects
 ====
 Sun trine jupiter. 日木120度<br>
 給盤主帶來對生命的信心.<br>
+落宮顯示信心來源, 例如, 落如第十二與第八宮, 信心來自祖先背景. 跟前世與業力有關的宮位.<br>
+木星落宮顯示好運像你招手的地方, 木星也顯示45歲後會逐漸出現的成就方向.<br>
+
 
 水/木<br>
 正相位: 學習快, 融會貫通.<br>
