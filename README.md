@@ -1,6 +1,6 @@
 # astrologer-note
 Self natal chart read and little reseaches.<br>
-![螢幕擷取畫面 2021-07-20 212644](https://user-images.githubusercontent.com/31240078/126333095-8fa01acf-a539-4443-a648-6d14f6952978.jpg)
+![Self-natal-chart_github_preview](https://user-images.githubusercontent.com/31240078/126334548-bff41a64-dedd-42e6-a323-c92986446e88.jpg)
 
 
 相位 Aspects
