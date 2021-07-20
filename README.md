@@ -2,7 +2,7 @@
 Self natal chart read and little reseach.<br>
 ![Self-natal-chart_github_preview](https://user-images.githubusercontent.com/31240078/126334548-bff41a64-dedd-42e6-a323-c92986446e88.jpg)
 
-重置盤.<br>
+重置盤.(移民)<br>
 
 相位 Aspects
 ====
