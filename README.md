@@ -45,6 +45,11 @@ Grand trine. 大三角. <br>
 土象: 穩定. <br>
 風象: 理性智慧, 學習力.<br>
 
+Kite. 風箏格局. <br>
+強大的精神引力, 卻懶惰成性. Kite.<br>
+Feminine<br>
+Masculine<br>
+
 Tarot 塔羅
 ====
 天使數字:
