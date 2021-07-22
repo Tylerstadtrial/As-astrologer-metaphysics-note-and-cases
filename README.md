@@ -67,6 +67,9 @@ Kite. 風箏格局. <br>
 Feminine<br>
 Masculine<br>
 
+Castle. 城堡.<br>
+缺四分之一的Grand sextile(六芒星).<br>
+
 Tarot 塔羅
 ====
 天使數字:
