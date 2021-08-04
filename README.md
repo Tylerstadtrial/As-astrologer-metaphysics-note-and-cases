@@ -73,7 +73,7 @@ Castle. 城堡.<br>
 命主星
 ====
 上升魔羯, 上升水瓶 ==> 土星<br>
-命主星的相位.<br>
+命主星的相位. Aspects of Ruler Charts<br>
 
 Tarot 塔羅
 ====
