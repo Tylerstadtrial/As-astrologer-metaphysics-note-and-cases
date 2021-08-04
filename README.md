@@ -70,6 +70,10 @@ Masculine<br>
 Castle. 城堡.<br>
 缺四分之一的Grand sextile(六芒星).<br>
 
+命主星
+====
+上升魔羯, 上升水瓶.
+
 Tarot 塔羅
 ====
 天使數字:
