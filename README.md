@@ -32,7 +32,7 @@ Cradle 搖籃格局. <br>
 但隨著時間流逝, Cradle構成的舒適搖籃將會無法再繼續給盤主帶來安全.<br>
 
 Golden Yod 黃金上帝之指.<br>
-與Yod相同, 只是更為溫和平順的相位. 稱"Finger of fate", 被命運選定之人. 在生活中經常感覺到有需要完成的額外的任務, 俗稱使命(The mission)<br>
+與Yod相同, 相對平順. Yod, 稱"Finger of fate", 也許是被命運選定之人. 在生活中經常感覺到有需要完成的額外的任務, 俗稱使命(The mission)<br>
 兩個互相72度的行星以144度指向另一顆.<br>
 Some astrologer said it provide a person extremely creatively ability at specific moment.<br>
 Apex in sun:<br>
