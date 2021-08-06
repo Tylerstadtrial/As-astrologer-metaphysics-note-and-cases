@@ -4,7 +4,7 @@ Self natal chart read and little reseach.<br>
 
 重置盤.(移民)<br>
 
-相位 Aspects
+星體間相位 Aspects
 ====
 Sun trine jupiter. 日木120度<br>
 給盤主帶來對生命的信心.<br>
@@ -16,7 +16,9 @@ Sun trine jupiter. 日木120度<br>
 負相位: 浮誇, 不著邊際.<br>
 
 金/火.<br>
-正相位
+正相位<br>
+
+不論合相(0度), 對沖相(180度), 都象徵"激烈"的影響.
 
 流年事件 Transit
 ====
