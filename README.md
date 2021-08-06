@@ -97,7 +97,7 @@ Nvidia
 
 就是他的人生答案
 
-黃仁勳
+黃仁勳CEO
 ![スクリーンショット 2021-08-04 181029](https://user-images.githubusercontent.com/31240078/128164446-63874134-d7ec-4ff8-8eed-7c0dbe4e7d75.jpg)
 
 頂點還有一個月亮 (Moon)
