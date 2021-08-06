@@ -42,6 +42,7 @@ Cradle 搖籃格局. <br>
 
 Golden Yod 黃金上帝之指.<br>
 與Yod相同, 相對平順. Yod, 稱"Finger of fate", 也許是被命運選定之人. 在生活中經常感覺到有需要完成的額外的任務, 俗稱使命(The mission)<br>
+不斷上演被害者與拯救者的角色. 因為你正在給現實環境不一樣的影響.<br>
 兩個互相72度的行星以144度指向另一顆.<br>
 Some astrologer said it provide a person extremely creatively ability at specific moment.<br>
 Apex in sun:<br>
