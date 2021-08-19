@@ -107,7 +107,7 @@ Nvidia
 
 就是他的人生答案
 
-黃仁勳CEO
+英偉達CEO
 ![スクリーンショット 2021-08-04 181029](https://user-images.githubusercontent.com/31240078/128164446-63874134-d7ec-4ff8-8eed-7c0dbe4e7d75.jpg)
 
 頂點還有一個月亮 (Moon)
@@ -121,3 +121,5 @@ Nvidia
 也是你的星座 巨蟹
 
 海王星落入天蠍, 天蠍跟忌妒有關, Nvidia的名字來自Invidia.
+
+成功, 無庸置疑.
