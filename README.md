@@ -44,7 +44,7 @@ Golden Yod 黃金上帝之指.<br>
 與Yod相同, 相對平順. Yod, 稱"Finger of fate", 也許是被命運選定之人. 在生活中經常感覺到有需要完成的額外的任務, 俗稱使命(The mission)<br>
 不斷上演被害者與拯救者的角色. 因為你正在給現實環境不一樣的影響.<br>
 兩個互相72度的行星以144度指向另一顆.<br>
-Some astrologer said it provide a person extremely creatively ability at specific moment.<br>
+Some astrologer said it provide a person extremely creative ability at specific moment. The moment when transit planet opposition apex planet.<br>
 Apex in sun:<br>
 象徵生命的力量與性格.<br>
 頂點對面是激活點, 行運走過將可能觸發行動.<br>
@@ -66,6 +66,10 @@ T-square with apex in jupiter. T三角點頂木星<br>
 固定星座T三角: <br>
 變動星座T三角: <br>
 
+大十字<br>
+困苦格局, 成功需要相當的犧牲.<br>
+名人案例: Steve Jobs.<br>
+
 Grand trine. 大三角. <br>
 水象: 看上去有想像力, 但未必會付諸行動.<br>
 火象: 旺盛的行動力.<br>
@@ -79,6 +83,11 @@ Masculine<br>
 
 Castle. 城堡.<br>
 缺四分之一的Grand sextile(六芒星).<br>
+
+Grand sextile. (六芒星)<br>
+極為罕見. <br>
+名人: 童子賢 <br>
+
 
 命主星
 ====
