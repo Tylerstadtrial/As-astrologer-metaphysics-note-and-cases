@@ -101,7 +101,7 @@ Tarot 塔羅
 
 名人分析
 ====
-案例0.0.1 <br>
+案例0.0.1 品牌Nvidia CEO<br>
 
 像您是大十字 我是 Golden Yod + T三角 + 搖籃
 
