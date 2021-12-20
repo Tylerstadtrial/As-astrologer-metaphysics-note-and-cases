@@ -3,7 +3,7 @@ Self natal chart read and little reseach.<br>
 ![Self-natal-chart_github_preview](https://user-images.githubusercontent.com/31240078/126334548-bff41a64-dedd-42e6-a323-c92986446e88.jpg)
 
 重置盤.(與移民, 長時間旅行有關)<br>
-吳安蘭老師博客追蹤.<br>
+吳老師博客追蹤.<br>
 Golden Yod存在.<br>
 移民後多了一個Golden Yod, 以及一個 Yod.<br>
 
