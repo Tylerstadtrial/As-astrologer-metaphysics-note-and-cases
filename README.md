@@ -145,4 +145,8 @@ Nvidia
 https://www.astro.com/cgi/chart.cgi?clang=e;rs=0;gm=a1;btyp=2;sday=14;prmth=0;syr=2021;aspqui=1;mth=gw;smon=11;nhor=2
 Luckily found it. We could see the orange color line pattern is a solid true low-orbit golden yod as similar as Adolf Hilter, Super Mario Bros Producer Miyamoto Shigeru, and many of the people who give a big shock to civilization. By the way, the apex mars in AQUARIUS (symbol of technology) conjunct to his North Node (symbol of highest ideal) at 8th house continuously prove what he has done, meanwhile, supported by other investors. Those might imply a talented, fated, and influential being to the entire society and earth planet. Sorry, doesn't mean that it is a good aspect. What the aspect might tell us is the "influential".
 
+名人0.0.3 莎莉賽隆 Charlize Theron
+![螢幕擷取畫面 2021-12-30 133838](https://user-images.githubusercontent.com/31240078/147724681-c5198678-e97d-458a-8ed9-bdac430f134e.jpg)
+壞格局 T三角, 頂點在第十一宮, 對面空腳(橘色圈)是人生解決方法, 空腳在第五宮, 是一名明星.
+
 
