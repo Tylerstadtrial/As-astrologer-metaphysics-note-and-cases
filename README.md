@@ -148,6 +148,6 @@ Luckily found it. We could see the orange color line pattern is a solid true low
 名人0.0.3 莎莉賽隆 Charlize Theron
 ![螢幕擷取畫面 2021-12-30 133838](https://user-images.githubusercontent.com/31240078/147724681-c5198678-e97d-458a-8ed9-bdac430f134e.jpg)
 
-壞格局 T三角, 頂點在第十一宮, 對面空腳(橘色圈)是人生解決方法, 空腳在第五宮, 是一名明星.
+壞格局 T三角, 頂點在第十一宮, 對面空腳(橘色圈)是人生解決方法, 空腳在第五宮, 象徵創造與嗜好的宮位, 是一名明星.
 
 
