@@ -153,8 +153,7 @@ Luckily found it. We could see the orange color line pattern is a solid true low
 上帝之指持有者 <br>
 特性: 上帝之指持有者之間容易彼此吸引 <br>
 名人: Camero Diaz, Jime Carrey, Paule Wallker, Millan Jovovich, Vins Diesel, Galt Gadot, Kate Bos<br>
-名人0.0.4 <br>
-卡麥隆狄亞茲<br>
+名人0.0.4 卡麥隆狄亞茲<br>
 19工作與兩地住處, 天王星四宮(家), 木星在第六宮(工作), 頂點月亮金牛在第十一宮, 金牛象徵地域, 第十一宮是大眾, 上帝之指的人都有天命, 其天命是當行運走到頂點對面, 第一次是小時候冥王星過境, <br>
 從事與以往不同的選擇, 模特兒, 第二次木星走到本命天王星, 第一個人生考驗, 試鏡電影, 隔年木星走到頂點對面, 踏進電影圈. 天王星有四海為家的想法, 頂點第十一宮對面是第五宮, 象徵創造. <br>
 
