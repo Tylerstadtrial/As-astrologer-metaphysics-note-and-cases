@@ -1,4 +1,9 @@
-# Astrology-note 翰的星象筆記
+# Astrology-note 翰Tyler的星象不負責任筆記
+前言<br>
+一切的根源源自不能解釋但確實發生, 確實感受到的統計與事件.<br>
+將之客觀配合主觀感情分享 <br>
+用客觀解釋主觀 <br><br>
+
 Self natal chart read and little reseach.<br>
 ![Self-natal-chart_github_preview](https://user-images.githubusercontent.com/31240078/126334548-bff41a64-dedd-42e6-a323-c92986446e88.jpg)
 
@@ -155,6 +160,8 @@ Luckily found it. We could see the orange color line pattern is a solid true low
 特性: 上帝之指持有者之間容易彼此吸引 <br>
 名人: Camero Diaz, Jime Carrey, Paule Wallker, Millan Jovovich, Vins Diesel, Galt Gadot, Kate Bos<br>
 名人0.0.4 卡麥隆狄亞茲<br>
+![CameronDiaz](https://user-images.githubusercontent.com/31240078/156510308-7a877784-7e65-44da-bad9-205fe9d0a018.jpg)
+
 19工作與兩地住處, 天王星四宮(家), 木星在第六宮(工作), 頂點月亮金牛在第十一宮, 金牛象徵地域, 第十一宮是大眾, 上帝之指的人都有天命, 其天命是當行運走到頂點對面, 第一次是小時候冥王星過境, <br>
 從事與以往不同的選擇, 模特兒, 第二次木星走到本命天王星, 第一個人生考驗, 試鏡電影, 隔年木星走到頂點對面, 踏進電影圈. 天王星有四海為家的想法, 頂點第十一宮對面是第五宮, 象徵創造. <br>
 
@@ -166,5 +173,6 @@ Dejinara 特質強的人可能是受虐者 <br>
 合盤 <br>
 假設A的Nessus合到B的上升, A容易施虐B <br>
 假設B的Dejanira合到C的上升, B容易被C虐待 <br>
+
 
 
