@@ -1,7 +1,6 @@
 # Astrology-note 翰Tyler的星象不負責任筆記
 前言<br>
-一切的根源源自不能解釋但確實發生, 確實感受到的統計與事件.<br>
-將之客觀配合主觀感情分享 <br>
+源自不容易解釋但確實發生, 確實感受到的統計與事件.<br>
 用客觀解釋主觀 <br><br>
 
 Self natal chart read and little reseach.<br>
