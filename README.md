@@ -175,7 +175,7 @@ Luckily found it. We could see the orange color line pattern is a solid true low
 黃金上帝之指持有者
 ====
 Golden Yod, A variation of Yod, 上帝之指的變種. <br>
-極少, Elon MusX, Cameron DiaX, Adolf Hitle, 普丁 Putin <br><br>
+極少的存在, Elon MusX, Cameron DiaX, Adolf Hitle, 普丁 Putin <br><br>
 
 大三角持有者
 ====
