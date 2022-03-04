@@ -9,7 +9,7 @@ Self natal chart read and little reseach.<br>
 重置盤.(與移民, 長時間旅行有關)<br>
 吳老師博客追蹤.<br>
 Golden Yod存在.<br>
-移民後多了一個Golden Yod, 以及一個 Yod.<br>
+移民後多了一個 Yod.<br>
 
 星體間相位 Aspects
 ====
