@@ -1,7 +1,7 @@
-# Astrology-note 翰Tyler的星象不負責任筆記
+# Astrology-note 翰學Tyler的星象不負責任筆記
 前言<br>
 源自不容易解釋但確實發生, 確實感受到的統計與事件.<br>
-用客觀解釋主觀 <br><br>
+用客觀解釋主觀. <br><br>
 
 Self natal chart read and little reseach.<br>
 ![Self-natal-chart_github_preview](https://user-images.githubusercontent.com/31240078/126334548-bff41a64-dedd-42e6-a323-c92986446e88.jpg)
