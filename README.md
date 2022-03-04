@@ -144,7 +144,8 @@ Nvidia
 
 成功路艱辛, 不過, 帶來可觀的影響力.
 
-案例0.0.2 伊隆馬斯克 Elon Musk, 更便宜的可回收火箭, 工業設計領先電動車公司, 隧道, 腦機接口, 太陽能.<br>
+案例0.0.2 伊隆馬斯克 Elon Musk <br>
+事件: 更便宜的可回收火箭, 工業設計領先電動車公司, 隧道, 腦機接口, 太陽能.<br>
 伊隆馬斯克的黃金上帝之指頂點火星合相北交點落在第八宮<br>
 https://www.astro.com/cgi/chart.cgi?clang=e;rs=0;gm=a1;btyp=2;sday=14;prmth=0;syr=2021;aspqui=1;mth=gw;smon=11;nhor=2
 Luckily found it. We could see the orange color line pattern is a solid true low-orbit golden yod as similar as Adolf Hilter, Super Mario Bros Producer Miyamoto Shigeru, and many of the people who give a big shock to civilization. By the way, the apex mars in AQUARIUS (symbol of technology) conjunct to his North Node (symbol of highest ideal) at 8th house continuously prove what he has done, meanwhile, supported by other investors. Those might imply a talented, fated, and influential being to the entire society and earth planet. Sorry, doesn't mean that it is a good aspect. What the aspect might tell us is the "influential".
@@ -156,7 +157,7 @@ Luckily found it. We could see the orange color line pattern is a solid true low
 
 上帝之指持有者 
 ====
-特性: 上帝之指持有者之間容易彼此吸引, 上帝之指並非好或壞. <br>
+特性: 上帝之指持有者之間容易彼此吸引, 上帝之指並非好或壞, 他們感覺到上天給於的使命, 他們不知道那是什麼, 直到行運走到啟動點(Activation point) <br>
 名人: Camero Diaz, Jime Carrey, Paule Wallker, Millan Jovovich, Vins Diesel, Galt Gadot, Kate Bos, Putin, Walt Disney<br>
 名人0.0.4 卡麥隆狄亞茲<br>
 ![CameronDiaz](https://user-images.githubusercontent.com/31240078/156510308-7a877784-7e65-44da-bad9-205fe9d0a018.jpg)
