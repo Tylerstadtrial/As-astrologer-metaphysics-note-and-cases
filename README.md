@@ -157,7 +157,7 @@ Luckily found it. We could see the orange color line pattern is a solid true low
 上帝之指持有者 
 ====
 特性: 上帝之指持有者之間容易彼此吸引 <br>
-名人: Camero Diaz, Jime Carrey, Paule Wallker, Millan Jovovich, Vins Diesel, Galt Gadot, Kate Bos<br>
+名人: Camero Diaz, Jime Carrey, Paule Wallker, Millan Jovovich, Vins Diesel, Galt Gadot, Kate Bos, Putin, Walt Disney<br>
 名人0.0.4 卡麥隆狄亞茲<br>
 ![CameronDiaz](https://user-images.githubusercontent.com/31240078/156510308-7a877784-7e65-44da-bad9-205fe9d0a018.jpg)
 
