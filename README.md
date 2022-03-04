@@ -1,4 +1,4 @@
-# Astrology-note 翰學Tyler的星象不負責任筆記
+# Astrology-note 翰Tyler的星象不負責任筆記
 前言<br>
 源自不容易解釋但確實發生, 確實感受到的統計與事件.<br>
 用客觀解釋主觀. <br><br>
