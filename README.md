@@ -172,6 +172,15 @@ Luckily found it. We could see the orange color line pattern is a solid true low
 名人1.0.5 普丁 Putin, One of the lead of russia<br>
 ![Putin](https://user-images.githubusercontent.com/31240078/156700400-d050aaf6-59ab-4a24-b34e-069d9e3052b2.jpg)
 
+黃金上帝之指持有者
+====
+Golden Yod, A variation of Yod, 上帝之指的變種. <br>
+極少, Elon MusX, Cameron DiaX, Adolf Hitle, 普丁 Putin <br><br>
+
+大三角持有者
+====
+2022世逝Nexon創辦者金正宙先生, 水象大三角, 充滿想像力的相位. <br><br>
+Nexon, 楓之谷, 跑跑卡丁車, 爆爆王開發商. <br>
 
 主題
 ====
