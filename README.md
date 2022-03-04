@@ -177,7 +177,7 @@ Dejinara 特質強的人可能是受虐者 <br>
 假設A的Nessus合到B的上升, A容易施虐B <br>
 假設B的Dejanira合到C的上升, B容易被C虐待 <br><br>
 
-Patterns 模式 與 格局的區別<br>
+Patterns 模式 與 Compound Aspects格局的區別<br>
 Locomotive機車模式<br>
 
 
