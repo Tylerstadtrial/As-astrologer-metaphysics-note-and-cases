@@ -3,6 +3,8 @@
 源自不容易解釋但確實發生, 確實感受到的統計與事件.<br>
 用客觀解釋主觀. <br><br>
 
+另外將第三者提供訊息整理至.txt檔在同一個代碼庫, 它們可能來自Youtube, Weibo, 豆瓣, 及其他熱門社群網站.
+
 Self natal chart read. <br>
 ![Self-natal-chart_github_preview](https://user-images.githubusercontent.com/31240078/126334548-bff41a64-dedd-42e6-a323-c92986446e88.jpg)
 
@@ -134,7 +136,7 @@ Nvidia
 英偉達CEO
 ![スクリーンショット 2021-08-04 181029](https://user-images.githubusercontent.com/31240078/128164446-63874134-d7ec-4ff8-8eed-7c0dbe4e7d75.jpg)
 
-頂點還有一個月亮 (Moon)
+頂點還有一個月亮 (Moon) (影響力不確定)
 
 月亮守護星巨蟹座
 
@@ -179,7 +181,7 @@ Golden Yod, A variation of Yod, 上帝之指的變種. <br>
 
 大三角持有者
 ====
-2022世逝Nexon創辦者金正宙先生, 水象大三角, 充滿想像力的相位. <br><br>
+2022世逝Nexon創辦者金先生, 水象大三角, 充滿想像力的相位. <br><br>
 Nexon, 楓之谷, 跑跑卡丁車, 爆爆王開發商. <br>
 
 主題
