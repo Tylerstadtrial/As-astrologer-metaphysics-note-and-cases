@@ -1,4 +1,4 @@
-# Astrology-note 翰Tyler的星象不負責筆記, 星象研究的足跡與臨時總結
+# Astrology-note 翰Tyler的星象不負責任筆記, 星象研究的足跡與臨時總結
 
 另外將第三者提供訊息整理至.txt檔在同一個代碼庫, 它們可能來自Youtube, Weibo, 豆瓣, 及其他熱門社群網站.
 
