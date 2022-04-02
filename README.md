@@ -171,6 +171,11 @@ Luckily found it. We could see the orange color line pattern is a solid true low
 名人1.0.5 普丁 Putin, One of the lead of russia<br>
 ![Putin](https://user-images.githubusercontent.com/31240078/156700400-d050aaf6-59ab-4a24-b34e-069d9e3052b2.jpg)
 
+名人0.0.6 G-Dragon<br>
+不僅僅有上帝之指, 指尖同時是T三角的頂點, 還有搖籃格局, 非常努力自我突破. <br>
+![G-Dragon](https://user-images.githubusercontent.com/31240078/161381283-745cf440-1f6f-4a9d-9d25-5f5d38ead127.jpg)
+
+
 黃金上帝之指持有者
 ====
 Golden Yod, A variation of Yod, 上帝之指的變種. <br>
