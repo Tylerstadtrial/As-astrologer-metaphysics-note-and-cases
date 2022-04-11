@@ -1,6 +1,9 @@
 # Astrology-note 翰Tyler的星象不負責任筆記, 星象研究的足跡與臨時總結
 
-另外將第三者提供訊息整理至.txt檔在同一個代碼庫, 它們可能來自Youtube, Weibo, 豆瓣, 及其他熱門社群網站.
+Disclaimer <br>
+Most of the irresposible records and data below does not effectively mean to the politics and reality neither infleunces nor orderly confliction. Author will step back the related researches and delete all of them if those are form erosion of the parties. <br>
+
+另外，詳細主題整理至.txt檔在同一個代碼庫, 它們可能來自Youtube, Weibo, 豆瓣, 及其他熱門社群網站的片段線索.
 
 Self natal chart read. <br>
 ![Self-natal-chart_github_preview](https://user-images.githubusercontent.com/31240078/126334548-bff41a64-dedd-42e6-a323-c92986446e88.jpg)
