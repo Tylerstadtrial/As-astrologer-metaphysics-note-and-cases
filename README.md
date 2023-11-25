@@ -1,4 +1,4 @@
-# Astrology-note Tyler的星象不負責任筆記, 星象研究的足跡與臨時總結
+# Astrology-note Cloud的星象不負責任筆記, 星象研究的足跡與臨時總結
 
 Disclaimer <br>
 Most of the irresposible records and data below does not effectively mean to the politics and reality neither infleunces nor orderly confliction. Author will step back the related researches and delete all of them if those are form erosion of the parties. <br>
